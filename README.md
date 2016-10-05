@@ -9,4 +9,4 @@
 ![Screenshot 1](https://docs.google.com/uc?id=0B09XALl5QufvMUd4WnV2NC0zd3M)
 ![Screenshot 2](https://docs.google.com/uc?id=0B09XALl5QufvY0hhT3JGMW9WdTg)
 <h1>Link Aplikasi </h1>
-https://drive.google.com/open?id=0B09XALl5QufvaU9mOWpHN1p6Nzg
+https://drive.google.com/open?id=0BwtU3lbRAQl8dkVGdEkyTzVIZE0
